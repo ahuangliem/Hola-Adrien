@@ -1,3 +1,2 @@
-# Hola-Adrien
-Adrienne's Birthday Event
+# Hola-Adrien!
 Do you want to see something?
